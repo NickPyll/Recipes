@@ -27,7 +27,7 @@
 - 1 tsp pepper
 - 1 tbsp Old Bay seasoning
 - 1 lb shrimp (peeled, deveined, rinsed, patted dry)
-- 1 cube shrimp stock
+- 1 cube shrimp stock (2 cups. Can substitute chicken stock)
 - 2 tbsp butter
 
 ### Toppings
